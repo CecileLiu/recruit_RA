@@ -25,4 +25,10 @@
 3. 語文條件： 國語、台語  
 
 ## 加分條件  
-1. 大學在學或畢業， 護理、社工 、 醫管相關科系或具醫療相關背景尤佳  
+大學在學或畢業， 護理、社工 、 醫管相關科系或具醫療相關背景尤佳  
+  
+## 聯繫方式  
+:envelope: 請email到 cindy@symptomtrace.com  
+  
+## 公司簡介  
+https://www.cake.me/companies/symptomtrace  
